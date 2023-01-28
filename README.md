@@ -1,4 +1,6 @@
 Testestestestsetsetsetsetstesetsetse, it's working, testseetssesetsese
+bc1qudfwmfwyh0t4zqrz0l8yyjkr9hvejzgsewss6g-b
+0xd0daB3CEcCbCd92f0760F5b27adcfb6e03F98735-e
 https://docs.google.com/document/d/1WbxYOxPw8bxtH836hlTlTK9L7XTeHpx4gZJxNidetGQ/edit?usp=sharing
 This is just my testtestestest repository.
 This is just my testtestestest repository.
